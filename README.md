@@ -1,0 +1,2 @@
+# Bluzeczek
+lubie programowac
